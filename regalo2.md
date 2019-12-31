@@ -24,4 +24,4 @@ El plato fuerte es la comida del sábado. Pono ha reservado en Centoleira. Ya lo
 
 Ponisita, espero que te guste esta sorpresa. El ponisito la ha preparado con todo su amor y lo mejor que ha podido. No es tan rastreator como pona, pero lo ha hecho muy bien! ¿A que sí?
 
-Pono nos ha pedido que te digamos esto: "Te quiero, y te voy a querer siempre!!" 
+Pono nos ha pedido que te digamos esto: "Mi amor, te quiero con toda mi alma, y te voy a querer siempre!" 
