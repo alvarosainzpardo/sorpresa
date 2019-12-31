@@ -12,4 +12,4 @@ Quizá ya te lo hayas imaginado, ya te lo hemos dicho: eres una ponisita muy lis
 
 ## Que bien!!!!!!
 
-Verdad? Pues [pinchando aqui] tienes todos los detalles.
+Verdad? Pues [pinchando aqui](regalo2.md) tienes todos los detalles.
